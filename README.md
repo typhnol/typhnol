@@ -1,4 +1,4 @@
-i'm typhnol (typh)(he/him)
+i'm typhnol (typh)
 
 barely qualify as a programmer
 
